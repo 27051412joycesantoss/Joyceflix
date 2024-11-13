@@ -52,7 +52,13 @@ O lar das crianças peculiares
 
 Seguindo uma pista deixada por seu avô, um jovem de 16 anos descobre uma ilha misteriosa onde vivem crianças com poderes especiais, mas também inimigos ocultos perigosos.
 
-![]() 
+![](https://media1.tenor.com/m/hCSkGUJESBIAAAAd/miss-peregrines-home-for-peculiar-children-miss-peregrines.gif) 
+
+Para sempre Alice 
+
+Alice Howland é professora de Harvard e especialista em linguística. Ela está feliz pelo que conseguiu construir, tanto a nível pessoal, quanto profissional. No entanto, sua vida muda inesperadamente quando ela é diagnosticada com Alzheimer.
+
+![](https://media.tenor.com/5fIO1lGSkuIAAAAi/bff-goals-angel-and-devil.gif) 
 
 
 
